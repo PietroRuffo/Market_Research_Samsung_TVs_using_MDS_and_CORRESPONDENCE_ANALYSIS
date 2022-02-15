@@ -1,0 +1,1 @@
+# Market_Research_using_MDS_and_CORRESPONDENCE_ANALYSIS
